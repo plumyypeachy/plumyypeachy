@@ -18,7 +18,7 @@
    
 <img align="left" width="540" height="800" alt="image" src="https://github.com/user-attachments/assets/ccb48304-c5e6-4cbf-8f87-77a05dd2b7b8"/>
 
-<p align="center">  𝐏𝐨𝐦𝐧𝐢 𝐂𝐨𝐫𝟑   ⏝ ͝    𑄹</p>
+<p align="center"> 𔘓 ִֶָ  𝐏𝐨𝐦𝐧𝐢 𝐂𝐨𝐫𝟑   ⏝ ͝    𑄹</p>
 <p align="center">   𓈒𝟏𝟕 𝐲𝐞𝐚𝐫𝐬 . ɞ. 𝟏𝟏.𝟏𝟕.𝟎𝟖 .?៹  ᤻֗  💭</p>
 
    𝄄︵ㅤ៹𝐘eɑ᷼𝐡 𝐛𝒖𝐭 𝒔𝐨 𝐰𝐡𝒂𝐭? 
