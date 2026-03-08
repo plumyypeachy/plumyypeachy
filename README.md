@@ -1,7 +1,7 @@
 <div align="center">
 
 
-![Mi imagen](https://i.pinimg.com/1200x/70/c9/58/70c9582cbbfad5c0fca32783e3d94ff3.jpg)
+![divfront](https://i.imgur.com/MfdI7tN.png)
 
 
 <p align="center"> 🎪
@@ -29,4 +29,5 @@
   </a>
 </p>
 
-![Mi imagen](https://i.pinimg.com/1200x/70/c9/58/70c9582cbbfad5c0fca32783e3d94ff3.jpg)
+
+![divfront](https://i.imgur.com/MfdI7tN.png)
