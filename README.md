@@ -15,7 +15,17 @@
 
  
    
-![IMG_1687](https://github.com/user-attachments/assets/ccb48304-c5e6-4cbf-8f87-77a05dd2b7b8)
+<img align="left" width="442" height="736" alt="image" src="https://github.com/user-attachments/assets/ccb48304-c5e6-4cbf-8f87-77a05dd2b7b8"/>
+
+```    ꒰ᩧ৯                ◞ ྀི◟ ͜ ◞ ྀི◟ ͜ ◞ ྀི ⑅   " 𝐚 𝐝𝐞𝐥𝐢𝐜𝐚𝐭𝐞, 𝐥𝐨𝐯𝐞 𝐬𝐭𝐚𝐢𝐧𝐞𝐝 𝐬𝐨𝐮𝐥 . . . "  ృ             𖹭 𑇓
+                                    
+                    ◟𓈒ֺּׅ ꒰꛱ ͜ ꛱|꛱       ︵⏜ ୨ ྀི ᴄʏʀɪᴇ¹  𝐨𝐮  ᴄʏʀᴇɴᴇ² ᴄʜᴇᴏᴠʟʏ³ ‹𝟹  ྀི୧ ⏜︵ ྀི     ˚̣̣ ͜   ⑅♡⃘
+                            ꪆৎ   18 yrs   ⏖   𝟏.𝟐𝟒.𝟎𝟖 ⠀⨾   ns yume . . .  ࿐
+
+m                           ꒰ྀི     ᴘʜᴀɪɴᴏɴ 。 sᴀɴᴊɪ  =͟͟͞ 。 ᴄᴀʟᴇʙ yume    ഒ໒꒱𓈒ׅ
+
+          ꒰ᩧ৯               ༏ིྀ♡ ໋꒱꒱⠀.  .   " 𝐅𝐢𝐧𝐜𝐡é 𝐜'è 𝐯𝐢𝐭𝐚 𝐜'è 𝐬𝐩𝐞𝐫𝐚𝐧𝐳𝐚 "     ◟ ͜͝ ᐩ                 𖹭 𑇓
+```
 
 
 
