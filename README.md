@@ -18,15 +18,11 @@
    
 <img align="left" width="540" height="800" alt="image" src="https://github.com/user-attachments/assets/ccb48304-c5e6-4cbf-8f87-77a05dd2b7b8"/>
 
+<p align="left">  𝑴𝒂𝐭𝐜𝐡𝒊𝐧𝐠    ⏝ ͝    𑄹</p>
+  ִ 
+  < ๋࣭   ࣪ ˖ <p align="center">   𓈒𝐀𝒎 𝒊 𝒘𝐞ꪱ︪︩۫𝒓𝐝...?៹  ᤻֗  💭</p>
 
-
-
-
-
-
-
-
-
-
+   𝄄︵ㅤ៹𝐘eɑ᷼𝐡 𝐛𝒖𝐭 𝒔𝐨 𝐰𝐡𝒂𝐭? 
+ 𝐄𝐯ᧉᩙ𝐫𝐲𝒃𝐨𝐝𝐲'𝒔 𝐰𝒆ꪱ︪︩۫𝐫𝐝 𖹭ׄ͟🤍
 
 <img width="1730" height="144" alt="image" src="https://github.com/user-attachments/assets/43da4613-a9b0-4809-96ec-91eebcd18056" />
