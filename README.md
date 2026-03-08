@@ -8,11 +8,11 @@
 <p align="center"> 🎪
 
 
-<p align="center">How do we get out of this space?  
+$\textcolor{#843535}{\textsf{How do we get out of this space?}}$ <br> 
 
-<p align="center">Why can't I take this thing off my face?
+$\textcolor{#356084}{\textsf{Why can't I take this thing off my face?}}$ <br> 
 
-# ¡¡ ᗯEᒪᑕOᗰE TO YOᑌᖇ ᑎEᗯ ᑭᒪᗩᑕE !!
+# $\textcolor{#b58a37}{\textsf{ ¡¡ ᗯEᒪᑕOᗰE TO YOᑌᖇ ᑎEᗯ ᑭᒪᗩᑕE !!}}$ <br> 
 
  
    
