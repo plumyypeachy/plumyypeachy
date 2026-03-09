@@ -17,6 +17,7 @@ $\textcolor{#356084}{\textsf{Why can't I take this thing off my face?}}$ <br>
  
    
 <img align="left" width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/ccb48304-c5e6-4cbf-8f87-77a05dd2b7b8"/>
+<img align="RIGHT" width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/767e8603-0d2c-42d3-bce3-f16162146c72" />
 <table>
   <tr>
     <th>
@@ -27,5 +28,7 @@ $\textcolor{#356084}{\textsf{Why can't I take this thing off my face?}}$ <br>
  </th>
 </tr>
 </table>
+<img align="left"width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/fe1f278e-fe4a-4a43-b557-796f9e6e5f16" />
 
-<img width="1730" height="144" alt="image" src="https://github.com/user-attachments/assets/43da4613-a9b0-4809-96ec-91eebcd18056" />
+ 
+ <img width="1730" height="144" alt="image" src="https://github.com/user-attachments/assets/43da4613-a9b0-4809-96ec-91eebcd18056" />
