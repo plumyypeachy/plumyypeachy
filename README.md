@@ -15,7 +15,7 @@ $\textcolor{#356084}{\textsf{Why can't I take this thing off my face?}}$ <br>
 # $\textcolor{#b58a37}{\textsf{ ¡¡ ᗯEᒪᑕOᗰE TO YOᑌᖇ ᑎEᗯ ᑭᒪᗩᑕE !!}}$ <br> 
 
    
-<img align="left" width="540" height="275" alt="image" src="https://github.com/user-attachments/assets/ccb48304-c5e6-4cbf-8f87-77a05dd2b7b8"/>
+<img align="left" width="500" height="200" alt="image" src="https://github.com/user-attachments/assets/ccb48304-c5e6-4cbf-8f87-77a05dd2b7b8"/>
 
 <img align="left" width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/767e8603-0d2c-42d3-bce3-f16162146c72" />
 <table>
