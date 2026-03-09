@@ -16,7 +16,7 @@ $\textcolor{#356084}{\textsf{Why can't I take this thing off my face?}}$ <br>
 
  
    
-<img align="left" width="540" height="800" alt="image" src="https://github.com/user-attachments/assets/ccb48304-c5e6-4cbf-8f87-77a05dd2b7b8"/>
+<img align="left" width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/ccb48304-c5e6-4cbf-8f87-77a05dd2b7b8"/>
 <table>
   <tr>
     <th>
