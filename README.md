@@ -24,7 +24,7 @@ $\textcolor{#356084}{\textsf{Why can't I take this thing off my face?}}$ <br>
 $\color{#356084}{\textsf{ 𔘓 ִֶָ  𝑠ℎ𝑒/𝑡ℎ𝑒ꪗ   ⏝ ͝    𑄹}}$ <br>
 $\color{#843535}{\textsf{   𓈒𝟏𝟕 𝐲𝐞𝐚𝐫𝐬 . ɞ. 𝟏𝟏.𝟏𝟕.𝟎𝟖 .?៹  ᤻֗  💭}}$ </br>
 $\color{#356084}{\textsf{  My f̲a̲v̲ characters ᴾᴼᴹᴺᴵ and ᴶᴬˣ .🤍}}$</br>
-$\color{#843535}{\textsf{ 𝔻𝕀G𝕀𝕋𝔸𝕃 and 𝕋R𝔸𝔻𝕀𝕋𝕀𝕆N𝔸𝕃 artist }}$ </br> 
+$\color{#843535}{\textsf{ ⸝⸝ 🖍•̩̩͙ ◡‌ 𝔻𝕀G𝕀𝕋𝔸𝕃 and 𝕋R𝔸𝔻𝕀𝕋𝕀𝕆N𝔸𝕃 artist }}$ </br> 
 
 
 </tr>
