@@ -8,4 +8,3 @@
 <p align="center">
 <img height="100" alt="MKLMKMYLOVED" src="https://github.com/user-attachments/assets/ae7b4a29-5dfd-4ae3-822e-8c9a55752e1d" />
 
-<img height="4000" alt="MKLMKMYLOVED" src="https://github.com/user-attachments/assets/7cb13268-73f7-4224-b711-dccdf16e467c" />
