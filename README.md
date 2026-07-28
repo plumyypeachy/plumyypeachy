@@ -8,7 +8,7 @@
  <div align="center">
 
 $\color{902300}\normalsize{\texttt{¡¡¡ HERE COMES MONKIE KID !!!}}$ <br>
-$\color{af7100}\normalsize{\texttt{Nothing is impossible if you just believe in yourself.}}$ <br>
+$\color{af7100}\normalsize{\texttt{Nothing is impossible if you just believe in yourself}}$ <br>
 
 <img height="5000" alt="MKLMKMYLOVED" src="https://github.com/user-attachments/assets/bf4e0372-361c-4b86-a3f1-2c61d82d0647" />
 
