@@ -1,6 +1,10 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=Wilfies&color=932b06&style=flat&base=67&label=Deliveries" alt="Views"><br>
 
+<p align="center">
+<img height="200" alt="staff:3" src="https://github.com/user-attachments/assets/ee7cca82-03d3-49a7-8c99-f341f5a0addc" />
+
+
  <div align="center">
 
 $\color{902300}\normalsize{\texttt{¡¡¡ HERE COMES MONKIE KID !!!}}$ <br>
