@@ -8,12 +8,12 @@
  <div align="center">
 
 $\color{902300}\normalsize{\texttt{¡¡¡ HERE COMES MONKIE KID !!!}}$ <br>
-
+$\color{af7100}\normalsize{\texttt{Nothing is impossible if you just believe in yourself.}}$ <br>
 
 <img height="5000" alt="MKLMKMYLOVED" src="https://github.com/user-attachments/assets/bf4e0372-361c-4b86-a3f1-2c61d82d0647" />
 
 <p align="center">
-$\color{af7100}\normalsize{\texttt{♡ Don't forget your noodles ദ്ദി ˉ͈̀꒳ˉ͈́ )✧}}$ <br>
+$\color{2c665a}\normalsize{\texttt{♡ Don't forget your noodles ദ്ദി ˉ͈̀꒳ˉ͈́ )✧}}$ <br>
 $\color{a48f6f}\normalsize{\texttt{〃ﾟｰﾟ)   txt ෆ ──  ̥°̩̥˚̩̩̥🥢˚̩̩̥txt°̩̥  .. ๑ï ྀི  ──   ͟🍱}}$ <br>
 
 <p align="center">
