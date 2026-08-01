@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=Wilfies&color=932b06&style=flat&base=67&label=Deliveries" alt="Views"><br>
 
 <p align="center">
-<img height="200" alt="staff:3" src="https://github.com/user-attachments/assets/ee7cca82-03d3-49a7-8c99-f341f5a0addc" />
+<img height="80" alt="staff:3" src="https://github.com/user-attachments/assets/e7543939-99f4-40c8-8748-751cdffd9ffa" />
 
 
  <div align="center">
@@ -17,7 +17,7 @@ $\color{a48f6f}\normalsize{\texttt{♡ Don't forget your noodles ദ്ദി �
 $\color{2c665a}\normalsize{\texttt{〃ﾟｰﾟ)   txt ෆ ──  ̥°̩̥˚̩̩̥🥢˚̩̩̥txt°̩̥  .. ๑ï ྀི  ──   ͟🍱}}$ <br>
 
 <p align="center">
-<img height="200" alt="staff:3" src="https://github.com/user-attachments/assets/ee7cca82-03d3-49a7-8c99-f341f5a0addc" />
+<img height="80" alt="staff:3" src="https://github.com/user-attachments/assets/e7543939-99f4-40c8-8748-751cdffd9ffa" />
 
 
 
